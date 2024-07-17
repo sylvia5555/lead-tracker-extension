@@ -9,4 +9,5 @@ https://www.linkedin.com/posts/sylvia-yousif-47292521a_newabrstep-js-es6-activit
 
 <br> 
 
-![image](https://github.com/user-attachments/assets/9da66c09-f9de-424d-9876-a4409567502c)
+![image](https://github.com/user-attachments/assets/b0a77ef2-ae0b-475a-9dc6-634f8e7e8f36)
+
